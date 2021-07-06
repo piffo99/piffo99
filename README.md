@@ -5,4 +5,4 @@ In free time, I improve my skills in coding, IT and everything related to it. I 
 At the moment I have released the game on Steam: [The Simplest Game on Steam](https://store.steampowered.com/app/1569560/The_Simplest_Game/).
 And many interesting projects are being developed right now!
 ### How to reach me :telephone_receiver:
-If you want to reach me on any topic, write to me by mail thedark.inc.999@gmail.com or any social network.
+If you want to reach me on any theme, write to me by mail thedark.inc.999@gmail.com or any social network.
